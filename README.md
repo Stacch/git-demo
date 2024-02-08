@@ -4,6 +4,7 @@
 81
 
 ![IMG FOR PAGE 81](https://www.gutenberg.org/files/19778/19778-h/images/p076.png)
+
 &nbsp;&nbsp;&nbsp;&nbsp;The door led right into a large kitchen,
 which was full of smoke from one end to the
 other: the Duchess was sitting on a three-
